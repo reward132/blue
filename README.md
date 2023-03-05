@@ -1,0 +1,2 @@
+# blue
+blue`s discord
